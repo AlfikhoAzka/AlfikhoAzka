@@ -1,4 +1,4 @@
-# **Hi! aku Azka**
+# **Hi cuy kalian ngapain buka profile github ku**
 
 <!---
 AlfikhoAzka/AlfikhoAzka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
