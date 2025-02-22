@@ -1,6 +1,6 @@
 # **Hi cuy kalian ngapain buka profile github ku**
 Now Playing  
-*If I Had a Gun...* – Noel Gallagher  
+*If I Had a Gun...* – Noel Gallagher High Flying Birds  
 ⏳ 03:06 ───❍────── 04:09  
 
  *Let me fly you to the moon*  
